@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Wetncreamy69
-- 👀 I’m interested in ...all sex
-- 🌱 I’m currently learning ...how to o wo touching
-- 💞️ I’m looking to collaborate on ...fuck8ng
+- 👋 hi I'm lonleyandsad40
+- 👀 I’m interested in ..getting answers and feedback 
+- 🌱 I’m currently learning ...how to be OK alone
+- 💞️ I’m looking to collaborate on ...finding an honest person,who have secret id's and emails all over the net,making me look dumb!
 - 📫 How to reach me ...
 
 <!---
